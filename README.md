@@ -3,4 +3,4 @@
 🌐 [t.me/TradeIP
 ](https://t.me/TradeIP)
 
-<img width="1280" height="1280" alt="photo_2026-06-01_18-37-29" src="https://github.com/user-attachments/assets/0fdc301e-3506-4733-a4a8-0b318cc048fa" />
+<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/0bb7d1f0-9db6-4bc2-b21d-9decd0c0885d" />
